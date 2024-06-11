@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collabogaorate on ...
 - 📫 How to reach me ...miss you ff
 - 😄 Pronouns: ...
-- ⚡ Fun fact: .cool..
+- fight Fun fact: .cool..
 
 <!---
 lorenzopelle7/lorenzopelle7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

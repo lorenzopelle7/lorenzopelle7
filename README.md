@@ -3,7 +3,7 @@
 - 🌱 I’m currently leawant your love ffrning ...cuijingfei
 - 💞️ I’m looking to collabogaorate on ...
 - 📫 How to reach me ...miss you ff
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...wodeshijieweinibaoliu
 - fight Fun fact: .cool..younigaiduohaoloveyou
 xiangnidewenrouwoyangnigeinizuihao
 <!---the best wishes to youaini520
